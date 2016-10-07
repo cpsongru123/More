@@ -10,3 +10,6 @@
 ![](http://yaohuo.me/album/upload/1000/2016/10/04/7120_0041530.jpg)
 3. 歌神
 4. lan
+
+## ED的糜烂语
+> ooxx,xxoo,oxox,xoxx
